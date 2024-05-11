@@ -1,0 +1,1 @@
+# git-github.com-megusunu-gishohaku10-sample.git2zmtyf
